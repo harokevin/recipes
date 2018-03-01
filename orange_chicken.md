@@ -18,6 +18,7 @@ Double the Chicken portions.
 - A little grated or minced ginger
 - 1 teaspoon cornstarch
 - Vegetable or peanut oil, for frying
+- double dash of basil
 
 
 #Directions:
