@@ -1,4 +1,7 @@
+Double the Chicken portions.
+
 #Chicken:
+
  - 2 tablespoons cornstarch
 - 4 egg whites
 - 4 boneless chicken thighs, cut into bite-sized pieces
@@ -15,6 +18,7 @@
 - A little grated or minced ginger
 - 1 teaspoon cornstarch
 - Vegetable or peanut oil, for frying
+- double dash of basil
 
 
 #Directions:
@@ -27,3 +31,5 @@
 - Heat about 2 inches of vegetable oil in a heavy-bottomed Dutch oven until a deep-fry thermometer inserted in the oil registers 350 degrees F. Carefully drop the chicken into the oil and move it around, flipping gently, until golden, 3 to 4 minutes. Let the pieces drain on a plate lined with paper towels for 2 to 3 minutes. Then drop them back into the oil for 1 minute to really solidify the coating.
 
 - Toss the chicken in the sauce and serve.
+
+- Don't forget the garnish!! Appearances are everything.
