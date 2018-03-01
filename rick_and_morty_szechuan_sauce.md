@@ -20,6 +20,7 @@
   - Strain, cover and let it cool down.
   -Enjoy the sauce
 
+-Simple addition
 #Method: Fan Recipe Szechuan Sauce
  - Garlic
  - Balsamic vinegar
