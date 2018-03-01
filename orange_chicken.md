@@ -1,5 +1,7 @@
 Double the Chicken portions.
+
 #Chicken:
+
  - 2 tablespoons cornstarch
 - 4 egg whites
 - 4 boneless chicken thighs, cut into bite-sized pieces
