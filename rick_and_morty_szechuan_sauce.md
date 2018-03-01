@@ -19,7 +19,6 @@
   -  Remove a quarter cup of sauce and add cornstarch, remove another quarter cup and add the xanthan gum. Add both back into the mixture straining the xanthan gum mixture for lumps and whisk over medium heat until it forms a sauce like goo.
   - Strain, cover and let it cool down.
   -Enjoy the sauce
-  
 
 #Method: Fan Recipe Szechuan Sauce
  - Garlic
