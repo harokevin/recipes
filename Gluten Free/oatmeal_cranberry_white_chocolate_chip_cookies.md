@@ -32,4 +32,4 @@ Bake the Cookies: Bake in the preheated oven for about 15 minutes or until they 
 - Take the cookies out of the oven and let them cool for two or three minutes on the baking sheet. They will firm up as they cool. Using a spatula, carefully transfer the cookies to a wire rack to cool. When completely cooled, store in an airtight container.
 
 #Notes:
-Yield: about 3-1/2 dozen 2-inch cookies
+Yield: about 4 dozen 2-inch cookies
