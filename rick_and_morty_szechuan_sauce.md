@@ -17,7 +17,7 @@
   - Combine water, vinegar, sesame seed oil, garlic powder, onion powder, garlic powder, ground ginger, marmite, corn syrup and ground pepper in medium sized bowl and transfer to medium sauce pan.
   -  Remove a quarter cup of sauce and add cornstarch, remove another quarter cup and add the xanthan gum. Add both back into the mixture straining the xanthan gum mixture for lumps and whisk over medium heat until it forms a sauce like goo.
   - Strain, cover and let it cool down.
-
+  -Test change
 
 #Method: Fan Recipe Szechuan Sauce
  - Garlic
