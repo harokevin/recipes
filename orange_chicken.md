@@ -15,7 +15,7 @@
 - A little grated or minced ginger
 - 1 teaspoon cornstarch
 - Vegetable or peanut oil, for frying
-
+- 1 teaspoon of powdered milk
 
 #Directions:
 - For the chicken: In a large bowl, whisk together the cornstarch and egg whites with a fork until almost frothy, about 1 minute. Add the chicken to the mixture and allow to sit for 5 to 10 minutes.
